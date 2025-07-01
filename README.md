@@ -1,1 +1,1 @@
-![isian](https://github.com/user-attachments/assets/9ef38a57-5a7d-4704-9e9f-cd602b30e549)
+![image](https://github.com/user-attachments/assets/0db7e260-86ee-4aac-baf3-9a9ce37343a8)
