@@ -1,2 +1,1 @@
-![image](https://github.com/user-attachments/assets/0db7e260-86ee-4aac-baf3-9a9ce37343a8)
-![jawa](https://github.com/user-attachments/assets/e4ce99e8-516a-4cc3-88b8-6e914126cc99)
+<img width="500" height="593" alt="image" src="https://github.com/user-attachments/assets/85e70b72-88d7-4ba5-970a-c186ef3c753a" />
